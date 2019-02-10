@@ -1,2 +1,3 @@
 # hello-world
 first repository , maybe the most important repository one day , one day , one day .....
+they told to write about myself a bit , and so => my name is fanish jain , i believe very strongly that i am the biggest fan alive of steve jobs, mahi, dr. mashoor gulati aka sunil ,ranbir kapoor ,and i love books
